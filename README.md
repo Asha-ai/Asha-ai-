@@ -1,2 +1,2 @@
-# Asha-ai-
+# Asha-ai
 About Me
